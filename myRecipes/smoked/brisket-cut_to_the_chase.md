@@ -3,7 +3,9 @@
 ## Context
 
 - I live near Phoenix, Arizona, so the air is dry; therefore, use a water pan.
-- Aim to finish the actual "cooking" to allow for a **long, 4 to 6-hour rested hold**. 
+- Aim to finish the actual "cooking" to allow for a **long, 4 to 6-hour rested hold**.
+- I use a Pitboss 7xx Series Vertical Smoker
+- The pellets are mainly a mixture of oak, hickory and apple tree - sometimes cherry tree pellets mixed in; however, chery is best for pork.
 
 ## Focus here is a "Tenderness-First" schedule:
 
@@ -23,7 +25,7 @@
 
 ---
 
-### Why this specific plan for Tenderness?
+### Reasoning and Considerations
 
 **1. Foil vs. Paper (The "Texas Crutch")**
 Since you mentioned **bark is secondary**, use **heavy-duty aluminum foil** instead of butcher paper. Foil traps 100% of the moisture and steam. This effectively "braises" the brisket during the final few hours of cooking, which is the fastest way to break down the stubborn connective tissue and guarantee tenderness.

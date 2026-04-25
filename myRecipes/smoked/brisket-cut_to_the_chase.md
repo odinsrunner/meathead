@@ -1,6 +1,11 @@
-Since you need to serve at **5:00 PM tomorrow (Saturday)**, we need to shift the timeline. To hit maximum tenderness, we want to finish the actual "cooking" by Saturday morning to allow for a **long, 4 to 6-hour rested hold**. 
+# Smoked Brisket
 
-Here is your adjusted "Tenderness-First" schedule:
+## Context
+
+- I live near Phoenix, Arizona, so the air is dry; therefore, use a water pan.
+- Aim to finish the actual "cooking" to allow for a **long, 4 to 6-hour rested hold**. 
+
+## Focus here is a "Tenderness-First" schedule:
 
 ---
 
